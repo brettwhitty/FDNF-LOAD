@@ -5,4 +5,4 @@ This archive is free to use; _if the data is used for analysis resulting in any 
 
 ==> _**If you are one of the anonymized authors of documents contained in this archive, please contact 'info@dataglut.org' directly so that we can discuss what is necessary to have your content removed.**_ <==
 
-Please note that versions of some of the materials contained herein **may currently be part of evidentiary submissions to the US courts; it is therefore in everyone's best interest that you _do communicate your wishes directly_**.
+Please note that versions of some of the materials contained herein **may currently be part of evidentiary submissions to the US courts 👨🏿‍⚖️; it is therefore in everyone's best interest that you _do communicate your wishes directly_**. 😉⚖️🤣
